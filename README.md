@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Furkan457
+- I am a freshman at Bilkent University CS
